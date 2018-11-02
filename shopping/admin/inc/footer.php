@@ -1,0 +1,1 @@
+Copyright © 2017  <a rel="nofollow" href="http://www.templatemo.com/preview/templatemo_367_shoes">Devloped</a> by <a href="http://www.templatemo.com" rel="nofollow" target="_parent" title="free css templates">HN Kapuriya</a>
